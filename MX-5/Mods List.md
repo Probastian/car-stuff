@@ -6,7 +6,7 @@
 
 Ein Hardtop braucht keine Zulassung, da es Beladung zählt. Es muss lediglich ordnungsgemäß befestigt werden und als Beladung zulässig sein (z.B. Maße).
 
-* Garage Vary (Fastback) [[REV9Autosport (Nicht auf Lager)](https://rev9autosport.com/nb/garage-vary-nb-hardtop-fastback.htmlhttps:/)]
+* Garage Vary (Fastback) [[REV9Autosport (Nicht auf Lager)](https://rev9autosport.com/nb/garage-vary-nb-hardtop-fastback.html)]
   *Scheinbar sehr schwer zu kriegen.*
   ![Bild 1 (von NENGUN)](./assets/garage_vary_hardtop.png)
 * SPS Motorsport (Fastback) [[SPS Motorsport](https://sps-motorsportshop.com/teileshop/performance-teileshop/mazda-mx-5-nb-1999-2000/exterieur/dach/3158/fastback-hardtop-mx-5-nb/nbfl)]
